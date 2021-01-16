@@ -1,2 +1,3 @@
 # Work-Showcase
 Hello! My name is Tyler Inegbrigtsen and I am native to the Chicagoland area! I am the oldest of 3, and the proud owner of a German Shepherd named Thor. I played basketball & golf in college while studying finance. 
+My career goals mostly revolve around finding purpose and meaningful connection with those around me. Ideally, I'd like to go into investment banking and transition to private equity to help grow businesses. 
